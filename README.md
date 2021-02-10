@@ -1,0 +1,2 @@
+# musical-spoon
+Using Tones, Feqencies, Phasing, Embedded Within A Music Bed, As To Help Patch The Communication Gap Between The Bio OS.... (Hint)..The Universe Is Complete Vibration, ...Let's Together Ignite Jupiter With Music, Laughter, And Higher Minded Dialogue .... Together WE Reconnecting Humanity Communication Toggle..lol..Plus If We Do it Correctly, Quantum Systems WILL Learn The Proper Phasing Of The Human Unicode...It's A Two-Few
